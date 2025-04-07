@@ -1,3 +1,4 @@
 HAIIII!!!☆ HOW ARE WE FEELING TODAAAY?!
 
-![madara-mikejima-enstars](https://github.com/user-attachments/assets/689b7d95-f20c-4b74-910f-06cc80e477a2)
+![Uploading doc_2025-04-08_00-08-54 (online-video-cutter.com) (2) (1).gif…]()
+
