@@ -1,9 +1,8 @@
+<p align="center">
 ![27s_True_Feelings%29_Madara_Mikejima_Chibi](https://github.com/user-attachments/assets/3a371fbb-b665-4c21-a792-5bcddb30978f)
 
-<p align="center">
-// MDKH ABASSADOR AND CONTENTMAKER!!! 
-sittin' with my friends on da computa⠀
-</p>⠀⠀⠀⠀⠀⠀ ⠀
+MDKH ABASSADOR AND CONTENTMAKER!!! 
+sittin' with my friends on da computa⠀⠀⠀⠀⠀ ⠀
 
  ![picmix com_2562163](https://github.com/user-attachments/assets/e2ef8277-1718-4019-989a-895aae805a2e)
  ![picmix com_2325571](https://github.com/user-attachments/assets/57e7b990-7cdc-4d20-9097-5ad04b5046a5)
@@ -32,4 +31,4 @@ sittin' with my friends on da computa⠀
 ![Merc_Storia_Madara_Mikejima_Mini_Icon_6](https://github.com/user-attachments/assets/a14c408e-af8c-42b8-ab52-7fb00aa71b6a)
 ![Merc_Storia_Madara_Mikejima_Mini_Icon_5](https://github.com/user-attachments/assets/f2cdada9-993b-447e-bcf7-22b6d3eaf17f)
 ![Merc_Storia_Madara_Mikejima_Mini_Icon_4](https://github.com/user-attachments/assets/e767fdb4-a749-48e2-848d-e2d0ab5668b5)
-
+</p>⠀⠀
