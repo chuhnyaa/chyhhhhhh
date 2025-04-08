@@ -1,6 +1,7 @@
 HAIIII!!!☆ HOW ARE WE FEELING TODAAAY?!
 
-![image](https://github.com/user-attachments/assets/28f5b8d8-e2d4-41b2-bf05-7a2c74b6de7e)
+![29_Madara_Mikejima_Chibi](https://github.com/user-attachments/assets/4b413fb3-cd34-491f-90f3-d3b248e41674)
+
 
 
 
