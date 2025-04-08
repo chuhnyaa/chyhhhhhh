@@ -13,7 +13,6 @@ sittin' with my friends on da computa⠀⠀⠀⠀⠀⠀⠀ ⠀
 ![picmix com_2679994](https://github.com/user-attachments/assets/e791fbb8-68fe-4c30-ae6a-ebe5ffbf0dcc)
 ![9331e055bd0df48cb0bebb98d051ead9](https://github.com/user-attachments/assets/d7431d18-c011-4f1c-9add-b9360669637e)
 
-![mini-stamp-stamp](https://github.com/user-attachments/assets/ad2c83a4-fa14-4b1e-9759-5b69cbd6a189)
 ME AND NEZUSAN (≧◡≦) 
 
  ![doc_2025-04-08_14-08-17](https://github.com/user-attachments/assets/4bcbda15-1851-4ec8-a144-e1444d1bdf34)
