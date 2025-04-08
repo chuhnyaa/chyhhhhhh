@@ -30,7 +30,4 @@ sittin' with my friends on da computa⠀⠀⠀⠀⠀⠀⠀ ⠀
 ![Merc_Storia_Madara_Mikejima_Mini_Icon_6](https://github.com/user-attachments/assets/a14c408e-af8c-42b8-ab52-7fb00aa71b6a)
 ![Merc_Storia_Madara_Mikejima_Mini_Icon_5](https://github.com/user-attachments/assets/f2cdada9-993b-447e-bcf7-22b6d3eaf17f)
 ![Merc_Storia_Madara_Mikejima_Mini_Icon_4](https://github.com/user-attachments/assets/e767fdb4-a749-48e2-848d-e2d0ab5668b5)
-![Merc_Storia_Madara_Mikejima_Mini_Icon_3](https://github.com/user-attachments/assets/4308583e-b67b-4b1b-8846-8d0f1f2cb320)
-![Merc_Storia_Madara_Mikejima_Mini_Icon_2](https://github.com/user-attachments/assets/47273152-4364-4fc2-8608-fb177131688d)
-![Merc_Storia_Madara_Mikejima_Mini_Icon_1](https://github.com/user-attachments/assets/1689821b-f8eb-45ca-9381-365b70358046)
 
