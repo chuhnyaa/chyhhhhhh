@@ -3,6 +3,7 @@
 ![mini-stamp-stamp](https://github.com/user-attachments/assets/ad2c83a4-fa14-4b1e-9759-5b69cbd6a189) MDKH ABASSADOR AND CONTENTMAKER!!!
 nezusan my love <3 
 sittin' with my friends on da computa⠀⠀⠀⠀⠀⠀⠀ ⠀
+![9331e055bd0df48cb0bebb98d051ead9](https://github.com/user-attachments/assets/adaa79b4-c1c8-4779-ab39-e64c65f1c1ef)
 
  ![picmix com_2562163](https://github.com/user-attachments/assets/e2ef8277-1718-4019-989a-895aae805a2e)
  ![picmix com_2325571](https://github.com/user-attachments/assets/57e7b990-7cdc-4d20-9097-5ad04b5046a5)
@@ -11,6 +12,7 @@ sittin' with my friends on da computa⠀⠀⠀⠀⠀⠀⠀ ⠀
 ![picmix com_2621061](https://github.com/user-attachments/assets/1a4dc80e-ea4d-4183-8879-0df782de2443)
 ![picmix com_2628312](https://github.com/user-attachments/assets/84cee007-6580-4e6f-ba1c-a62258c09a5d)
 ![picmix com_2679994](https://github.com/user-attachments/assets/e791fbb8-68fe-4c30-ae6a-ebe5ffbf0dcc)
+![9331e055bd0df48cb0bebb98d051ead9](https://github.com/user-attachments/assets/d7431d18-c011-4f1c-9add-b9360669637e)
 
 ![mini-stamp-stamp](https://github.com/user-attachments/assets/ad2c83a4-fa14-4b1e-9759-5b69cbd6a189)
 ME AND NEZUSAN (≧◡≦) 
