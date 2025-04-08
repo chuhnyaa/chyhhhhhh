@@ -4,6 +4,7 @@
 ![picmix com_2562163](https://github.com/user-attachments/assets/e2ef8277-1718-4019-989a-895aae805a2e)
 ![picmix com_2619657](https://github.com/user-attachments/assets/aa8859d8-5a66-4e83-aff8-fcd41d700fa3)
 ![picmix com_2736579](https://github.com/user-attachments/assets/e159acae-c135-4952-846e-23b0e24d1118)
+![picmix com_2621061](https://github.com/user-attachments/assets/1a4dc80e-ea4d-4183-8879-0df782de2443)
 
 
 sittin' with my friend' on da computa 
