@@ -31,6 +31,5 @@ sittin' with my friends on da computa⠀⠀⠀⠀⠀ ⠀
 ![Merc_Storia_Madara_Mikejima_Mini_Icon_5](https://github.com/user-attachments/assets/f2cdada9-993b-447e-bcf7-22b6d3eaf17f)
 ![Merc_Storia_Madara_Mikejima_Mini_Icon_4](https://github.com/user-attachments/assets/e767fdb4-a749-48e2-848d-e2d0ab5668b5)
 
-!!!!!!!
 
 ![madara-mikejima](https://github.com/user-attachments/assets/a04f7a6a-9d56-425d-9316-5ec1329d5afa)
