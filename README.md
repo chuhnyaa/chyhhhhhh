@@ -7,4 +7,6 @@
 ![picmix com_2621061](https://github.com/user-attachments/assets/1a4dc80e-ea4d-4183-8879-0df782de2443)
 
 
-sittin' with my friends on da computa 
+sittin' with my friends on da computa
+![madara-mikejima-ensemble-stars](https://github.com/user-attachments/assets/34c51336-7228-49d7-930b-edbbe7c1ce77)
+
