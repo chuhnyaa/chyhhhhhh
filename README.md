@@ -1,5 +1,3 @@
-![_zvyozdy_yapfiles ru](https://github.com/user-attachments/assets/ddfeec7a-7fde-4bbe-b319-be189210c2ea) 
-
 ![27s_True_Feelings%29_Madara_Mikejima_Chibi](https://github.com/user-attachments/assets/3a371fbb-b665-4c21-a792-5bcddb30978f)
 
 MDKH ABASSADOR AND CONTENTMAKER!!!
