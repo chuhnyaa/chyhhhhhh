@@ -1,6 +1,6 @@
 ![27s_True_Feelings%29_Madara_Mikejima_Chibi](https://github.com/user-attachments/assets/3a371fbb-b665-4c21-a792-5bcddb30978f)
 
-MDKH ABASSADOR AND CONTENTMAKER!!!
+![mini-stamp-stamp](https://github.com/user-attachments/assets/ad2c83a4-fa14-4b1e-9759-5b69cbd6a189) MDKH ABASSADOR AND CONTENTMAKER!!!
 nezusan my love <3 
 sittin' with my friends on da computa⠀⠀⠀⠀⠀⠀⠀ ⠀
 
