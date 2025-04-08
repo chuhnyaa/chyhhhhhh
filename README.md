@@ -12,5 +12,3 @@ MDKH ABASSADOR AND CONTENTMAKER!!!
 nezusan my love <3 
 sittin' with my friends on da computa⠀⠀⠀⠀⠀⠀⠀ ⠀
 
-![madara-mikejima-ensemble-stars](https://github.com/user-attachments/assets/34c51336-7228-49d7-930b-edbbe7c1ce77)
-
