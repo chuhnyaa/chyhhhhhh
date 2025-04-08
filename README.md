@@ -11,3 +11,6 @@ sittin' with my friends on da computa⠀⠀⠀⠀⠀⠀⠀ ⠀
 ![picmix com_2621061](https://github.com/user-attachments/assets/1a4dc80e-ea4d-4183-8879-0df782de2443)
 ![picmix com_2628312](https://github.com/user-attachments/assets/84cee007-6580-4e6f-ba1c-a62258c09a5d)
 ![picmix com_2679994](https://github.com/user-attachments/assets/e791fbb8-68fe-4c30-ae6a-ebe5ffbf0dcc)
+
+me and nezusan
+![doc_2025-04-08_14-08-17](https://github.com/user-attachments/assets/4bcbda15-1851-4ec8-a144-e1444d1bdf34)
