@@ -20,9 +20,9 @@ sittin' with my friends on da computa⠀⠀⠀⠀⠀ ⠀
 <p align="center">
 <3 ME AND NEZUSAN (≧◡≦) 
 </p>⠀
- 
+<p align="center"> 
 ![madara-enstars-madara-mikejima](https://github.com/user-attachments/assets/99213e53-62ee-4995-8aa5-858feb96f068)
-
+</p>
 
  ![divider](https://github.com/user-attachments/assets/2c138ccb-5803-4c78-bd4f-c07eacf7b76f)
 
