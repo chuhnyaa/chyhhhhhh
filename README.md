@@ -9,7 +9,5 @@
 ![27s_True_Feelings%29_Madara_Mikejima_Chibi](https://github.com/user-attachments/assets/3a371fbb-b665-4c21-a792-5bcddb30978f)
 
 
-sittin' with my friends on da computa
-
 ![madara-mikejima-ensemble-stars](https://github.com/user-attachments/assets/34c51336-7228-49d7-930b-edbbe7c1ce77)
 
