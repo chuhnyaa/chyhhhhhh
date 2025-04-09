@@ -4,8 +4,6 @@
 <p align="center">
 MDKH ABASSADOR AND CONTENTMAKER!!! 
 sittin' with my friends on da computa⠀⠀⠀⠀⠀ ⠀
-
-
 <3 ME AND NEZUSAN (≧◡≦) 
 </p>
 
