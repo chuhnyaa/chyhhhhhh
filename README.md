@@ -1,10 +1,10 @@
-![27s_True_Feelings%29_Madara_Mikejima_Chibi](https://github.com/user-attachments/assets/3a371fbb-b665-4c21-a792-5bcddb30978f)
+![27s_True_Feelings%29_Madara_Mikejima_Chibi](https://github.com/user-attachments/assets/3a371fbb-b665-4c21-a792-5bcddb30978f) ![picmix com_2562163](https://github.com/user-attachments/assets/e2ef8277-1718-4019-989a-895aae805a2e)
 
 MDKH ABASSADOR AND CONTENTMAKER!!! 
 sittin' with my friends on da computa⠀⠀⠀⠀⠀ ⠀
 
 
- ![picmix com_2562163](https://github.com/user-attachments/assets/e2ef8277-1718-4019-989a-895aae805a2e)
+
 
 
 
