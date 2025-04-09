@@ -1,5 +1,4 @@
-![picmix com_2619657](https://github.com/user-attachments/assets/8467170a-2528-488b-8c47-c146d0e8e66b)
-![29_Madara_Mikejima_Chibi1](https://github.com/user-attachments/assets/d1cd4edf-b926-4675-8eb1-f3880e3f9d9f)
+![picmix com_2679994](https://github.com/user-attachments/assets/d462bf60-6c60-4918-b6ab-38a8f81197a3) ![29_Madara_Mikejima_Chibi1](https://github.com/user-attachments/assets/d1cd4edf-b926-4675-8eb1-f3880e3f9d9f)
 ![picmix com_2562163](https://github.com/user-attachments/assets/e2ef8277-1718-4019-989a-895aae805a2e) 
 
 
