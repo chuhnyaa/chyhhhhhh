@@ -5,7 +5,8 @@
 MDKH ABASSADOR AND CONTENTMAKER!!! 
 sittin' with my friends on da computa
  
- 
+ ![Uploading madara-mikejima.gif…]()
+
  
  <3 ME AND NEZUSAN (≧◡≦) 
 
