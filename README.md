@@ -4,8 +4,6 @@
 
 MDKH ABASSADOR AND CONTENTMAKER!!! 
 sittin' with my friends on da computa
- 
-![madara-mikejima](https://github.com/user-attachments/assets/668bcaa9-7327-4a98-b867-7045d9f575b0)
 
 
  
