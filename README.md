@@ -16,6 +16,52 @@ sittin' with my friends on da computa⠀⠀⠀⠀⠀ ⠀
 ![madara-enstars-madara-mikejima](https://github.com/user-attachments/assets/99213e53-62ee-4995-8aa5-858feb96f068)
 
 
+みんな　必死で生きてれば
+時に　イザコザあるさ
+
+まぁまぁ　そんな不協和音は　一旦
+忘れましょう　Wow wow…
+（踊ればいいさ　歌えばいい）
+それこそ　大正解っ！
+
+一度の人生だから
+薔薇色に　咲き誇ろうぜ？
+祝祭のボルテージで今
+街中　キミも　僕も　大胆になれる
+
+Fun！　Funk！　始まり告げ　Festive time！
+突き抜けてく　晴天に　高らかなメロディを
+そうさ　キミが持って生まれた声（ねぇ　聴かせて）
+Joy！　Join！　独りきりじゃ…こんな風に
+大きな夢見れない
+みんな　Necessary！　愉しもう
+
+完敗≒乾杯！？　その笑顔だけには
+ぜんぜん　俺も敵わない
+万歳！　愉快痛快だよ　Happy
+浮かれましょう　Wow wow…
+（跳ねればいいさ　騒げばいい）
+毎日　アニヴァーサリー
+
+社長でも大統領でも
+祭り中は　カンケイないや
+較べ合う意味なんて棄てて
+願いに　夢に　愛に　従順に行こう
+
+Fun！　Fine！　華々しく　That’s all right！
+「青春」ってステージを　思い切り味わおう
+さぁさ　またとはないこの一瞬を（逃さないで）
+Joy！　Join！　どんな時も　キミらしく
+曇らぬ瞳で見つめて
+きっと　You can do！　信じよう
+
+Fun！　Funk！　始まり告げ　Festive time！
+突き抜けてく　晴天に　高らかなメロディを
+そうさ　キミが持って生まれた声(ねぇ　聴かせて)
+Joy！　Join！　独りきりじゃ…こんな風に
+大きな夢見れない
+みんな　Necessary！　愉しもう
+
  ![divider](https://github.com/user-attachments/assets/2c138ccb-5803-4c78-bd4f-c07eacf7b76f)
 
  
