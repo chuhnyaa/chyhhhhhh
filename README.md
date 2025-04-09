@@ -1,17 +1,13 @@
 ![picmix com_2619657](https://github.com/user-attachments/assets/8467170a-2528-488b-8c47-c146d0e8e66b)
 ![27s_True_Feelings%29_Madara_Mikejima_Chibi](https://github.com/user-attachments/assets/3a371fbb-b665-4c21-a792-5bcddb30978f) ![picmix com_2562163](https://github.com/user-attachments/assets/e2ef8277-1718-4019-989a-895aae805a2e) 
 
+<p align="center">
 MDKH ABASSADOR AND CONTENTMAKER!!! 
 sittin' with my friends on da computa⠀⠀⠀⠀⠀ ⠀
 
 
-
-
-
-
-
-
 <3 ME AND NEZUSAN (≧◡≦) 
+</p>
 
 ![madara-enstars-madara-mikejima](https://github.com/user-attachments/assets/99213e53-62ee-4995-8aa5-858feb96f068)
 
