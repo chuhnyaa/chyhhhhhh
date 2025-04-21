@@ -7,7 +7,7 @@ sittin' with my friends on da computa
 
 
  
- <3 ME AND NEZUSAN (≧◡≦) 
+ 
 
 
 ![madara-enstars-madara-mikejima](https://github.com/user-attachments/assets/99213e53-62ee-4995-8aa5-858feb96f068)
